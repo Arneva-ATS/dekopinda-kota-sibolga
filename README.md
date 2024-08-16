@@ -1,1 +1,1 @@
-# dekopinda-kota-sibolga
+# dekopinda-karanganyar
